@@ -16,6 +16,13 @@ Proficiency in:
 * AWS(S3) 
 
 
+## Contact
+c. 507 319 0972
+
+e. cpbram2011@gmail.com
+
+[LinkedIn](https://www.linkedin.com/in/chris-bram-522a661b9/)
+
 
 
 <!--
