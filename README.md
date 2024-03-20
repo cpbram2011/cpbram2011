@@ -22,7 +22,6 @@ e. cpbram2011@gmail.com
 
 [LinkedIn](https://www.linkedin.com/in/chris-bram-522a661b9/)
 
-[AngelList](https://angel.co/u/christopher-bram)
 
 
 <!--
